@@ -3,7 +3,7 @@ and in the heart of dying star, through dark, i saw you...
 
 ## CADE
 ```
-fey/fem Che/Cher - Nebugender Lesbian !! basically 17 birthday 2 weeks away lmao
+fey/fem Che/Cher - Nebugender Lesbian !! 17 IM 17 NOW!
 ```
 
 ## about me...
