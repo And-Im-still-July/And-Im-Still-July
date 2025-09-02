@@ -14,5 +14,11 @@ Heck yeah I am! Hi I like to draw, pony town runs in the background and I am not
 
 Don't be afriad to int with me, i don't bite (anymore.....) I just might not respond since I tab out every other second (shortest attention span EVER!) Crowns very appreciated and I love getting comments about my art :D
 
+```
+#1 FLIPTURN FAN - MASSIVE SKYLANDERS/SPYRO, KLONOA, GODZILLA, RWBY AND DIGIMON ENTHUSIAST. AMONG MANY, MANY OTHER THINGS! 
+```
+
+pro-cops/anti-acab DNI!!! I'm very openly ACAB!
+
 * [visit my strawpage if you want!]([https://and-im-still-july.straw.page/])
 * [or say hi to me on toyhouse!]([https://toyhou.se/nudemice])
